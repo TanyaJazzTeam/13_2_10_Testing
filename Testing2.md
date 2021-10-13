@@ -1,6 +1,6 @@
 # Des exercices
 
-[cité](https://www.citroen.by/)
+[cité](https://lada.by/)
 
 ## Exercices 1
 
