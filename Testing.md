@@ -9,4 +9,4 @@
 
 [BMW](https://lada.by/)
 
-[cité](https://www.citroen.by/)
+[cité](https://geely-minsk.by/)
