@@ -7,6 +7,6 @@
 
 ## Exercices 2
 
-[BMW](https://autoidea.by/)
+[BMW](https://lada.by/)
 
 [cité](https://www.citroen.by/)
